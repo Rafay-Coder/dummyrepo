@@ -1,1 +1,1 @@
-this is me rafay bhai smawia walay
+smawia meri ha sab ussay door rahain
